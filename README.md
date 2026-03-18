@@ -1,1 +1,0 @@
-# MADX3DSTUDIO
